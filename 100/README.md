@@ -21,7 +21,7 @@ Finding Your Reference Photo
 
 👉 Once you've chosen your reference photo, post it in the [Paintable community](https://discord.gg/paintable). 
 
-### Audrey Hepburn: Breafast at Tiffany's
+### Audrey Hepburn: Breakfast at Tiffany's
 
 Source: https://gothamist.com/arts-entertainment/tiffany-co-buys-audrey-hepburns-breakfast-at-tiffanys-script-for-847000
 
