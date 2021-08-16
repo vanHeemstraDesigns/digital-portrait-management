@@ -21,3 +21,17 @@ Recap:
 - Hop into the free Paintable community, where you can share your progress, see how other Challenge participants are doing, and give & get feedback from other digital artists like you. Don't forget to you the hashtag #oneweekeportrait.
 
 ![basic_steps_for_portrait_painting](https://user-images.githubusercontent.com/12828104/129559852-4850a188-5860-4375-854c-4b03d08131e2.png)
+
+## 200 - Sketching Quickly and Effectively
+
+Welcome to Day 1!
+
+Watch today's video to get started with sketching your portrait, in 3 steps:
+
+1. Geometric sketch
+2. Loose sketch
+3. Final lineart
+
+If you haven't chosen a reference photo yet, have a look on my  ➡ Pinterest Board .
+
+Tomorrow, the Day 2 video will open, showing you all about adding color to your sketch.
