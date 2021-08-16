@@ -20,3 +20,8 @@ Finding Your Reference Photo
 📌  You can access the Pinterest board mentioned in the video [HERE](https://www.pinterest.com/paintablecc/portrait-for-owp/)!
 
 👉 Once you've chosen your reference photo, post it in the [Paintable community](https://discord.gg/paintable). 
+
+### Audrey Hepburn: Breafast at Tiffany's
+
+Source: https://gothamist.com/arts-entertainment/tiffany-co-buys-audrey-hepburns-breakfast-at-tiffanys-script-for-847000
+
