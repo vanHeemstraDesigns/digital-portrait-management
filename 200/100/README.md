@@ -19,3 +19,5 @@ Recap:
 - You'll get an email from me each of the 5 days, with the lesson of the day.
 - Repeat after me: Finished is better than perfect!
 - Hop into the free Paintable community, where you can share your progress, see how other Challenge participants are doing, and give & get feedback from other digital artists like you. Don't forget to you the hashtag #oneweekeportrait.
+
+![basic_steps_for_portrait_painting](https://user-images.githubusercontent.com/12828104/129559852-4850a188-5860-4375-854c-4b03d08131e2.png)
