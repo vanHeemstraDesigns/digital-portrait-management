@@ -26,14 +26,3 @@ Recap:
 
 See [README.md](./200/README.md)
 
-Welcome to Day 1!
-
-Watch today's video to get started with sketching your portrait, in 3 steps:
-
-1. Geometric sketch
-2. Loose sketch
-3. Final lineart
-
-If you haven't chosen a reference photo yet, have a look on my  ➡ Pinterest Board .
-
-Tomorrow, the Day 2 video will open, showing you all about adding color to your sketch.
