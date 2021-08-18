@@ -24,6 +24,8 @@ Recap:
 
 ## 200 - Sketching Quickly and Effectively
 
+See [README.md](./200/README.md)
+
 Welcome to Day 1!
 
 Watch today's video to get started with sketching your portrait, in 3 steps:
