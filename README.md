@@ -1,5 +1,5 @@
-digital-portrait-headstart
-# Digital Portrait - Headstart
+digital-portrait-management
+# Digital Portrait Management
 
 Based on "One Week Portrait Challenge 2021" at https://courses.paintable.cc/products/one-week-portrait-challenge-2021
 
